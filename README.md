@@ -1,7 +1,7 @@
 # BuddyFinder
 ### This is another dumb passion project of mine.god knows if i'll finish it or not.
 
-What's it used for you asK?
+What's it used for you ask?
 For now,**Nothing**!
 (Unless you're a fan of randomly typing up shit and pressing a purple button. if you're, feel free to do that👍)
 
