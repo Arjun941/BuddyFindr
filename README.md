@@ -3,7 +3,7 @@
 
 What's it used for you ask?
 For now,**Nothing**!
-(Unless you're a fan of randomly typing up shit and pressing a purple button. if you're, feel free to do that👍)
+(Unless you're a fan of randomly typing up shit and clicking on a purple button. if you're, feel free to do that👍)
 
 In Future, well,
 
